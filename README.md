@@ -1,0 +1,1 @@
+# Zamex-script
